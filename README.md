@@ -1,1 +1,1 @@
-A Collection of my wallpapers
+**A Collection of my wallpapers**
